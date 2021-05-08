@@ -1,2 +1,0 @@
-ITS CURVA HERE ,
-
